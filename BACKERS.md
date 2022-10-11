@@ -799,6 +799,7 @@ Support Framework7 development by [pledging on Patreon](https://www.patreon.com/
 - [Evolution Host - A DDoS Protected VPS host that accepts Bitcoin](https://evolution-host.com)
 - [Casino En Ligne Canada, Les Meilleurs Casinos Virtuels Canadiens](https://casinofiables.com/)
 - [Real Time Communications World](https://www.realtimecommunicationsworld.com)
+- [Laetoto.live](https://laetoto.live/)
 - [Write My Essay For Me](https://papersowl.com/write-my-essay-please)
 - [RajBet online casino India](https://raj.bet)
 - [Findmate - International Dating & Friends](https://findmate.app)
